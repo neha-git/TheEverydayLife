@@ -1,2 +1,0 @@
-# TheEverydayLife
-Personal Blog
